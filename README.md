@@ -1,4 +1,4 @@
-#VZLOM BOTA KSHISH GNISHK
+# VZLOM BOTA KSHISH GNISHK
 OXYETb KSHISH B3/\OMAH!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 VZLOM DLILSYA 6 CEKUND OCHEN BISTRO YA KRUTOY HAKER!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 PIZDEC!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
